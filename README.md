@@ -1,1 +1,0 @@
-# kanaechinon.github.io
